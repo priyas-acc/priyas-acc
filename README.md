@@ -44,7 +44,7 @@ As a dedicated member of the **Artificial Intelligence and Data Science Associat
 
 ## 📫 Connect with Me
 
-- 💼 [LinkedIn](www.linkedin.com/in/priya-shaji-426001280)
+- 💼 [www.linkedin.com/in/priya-shaji-426001280]
 - 
 
 ---
